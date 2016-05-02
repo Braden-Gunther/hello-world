@@ -30,11 +30,7 @@ I don't think so
 I'll see when I get there
 I hope they're prepared for the prince of Bel-Air
 
-Well, the plane landed and when I came out
-There was a dude who looked like a cop standing there with my name out
-I ain't trying to get arrested yet
-I just got here
-I sprang with the quickness like lightning, disappeared
+
 
 I whistled for a cab and when it came near
 The license plate said fresh and it had dice in the mirror
